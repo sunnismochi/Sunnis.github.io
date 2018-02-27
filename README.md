@@ -1,1 +1,0 @@
-# jackprajapati.github.io
